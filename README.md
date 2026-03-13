@@ -76,11 +76,10 @@ Please see our Privacy Policy for more information on how your data is handled.
 
 12. Contact & Support
 
-For questions, concerns, or legal inquiries related to these Terms, please contact:
-
-Email: mkarimianzade@gmail.com
+The Git User or its Affiliates     
 
 By using Project MK, you confirm that you understand and agree to these Terms and Conditions.
 
 Your safety, security, and compliance are our priority.
 
+in Memory of **Clare Wood**

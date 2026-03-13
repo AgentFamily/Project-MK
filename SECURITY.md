@@ -38,11 +38,9 @@ Under UK data protection law, you have the following rights regarding your perso
 	•	The right to restrict or object to the processing of your data.
 	•	The right to withdraw consent at any time, where applicable.
 
-To exercise any of these rights, please contact us at mkarimianzade@gmail.com.
+To exercise any of these rights, please contact us at bot@blue-print.ai
 
 7. Changes to This Privacy Policy
 
 We may update this  Privacy Policy from time to time. Any changes will be communicated to you, and the updated policy will be posted on this page. Please review this Privacy Policy periodically to stay informed about how we are protecting your information.
-
-If you have any questions or concerns about this Privacy Policy, please contact us at mkarimianzade@gmail.com.
 
